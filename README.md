@@ -1,2 +1,0 @@
-# FTC
-JUST HAVE FUN
